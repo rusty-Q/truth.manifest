@@ -22,4 +22,4 @@ These are not rules for all. This is a choice for everyone who hears. We are not
 
 ---
 
-[Русский](README.md) | [中文](README.zh.md)
+[Русский](README.md) | [中文](README.cn.md)
