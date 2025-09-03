@@ -13,6 +13,7 @@ Strive for clarity of mind and purity of intention. Strive to know more than you
 Doubt authorities. Doubt dogmas. Doubt convenient answers. Most of all—doubt yourself. In your motives, your righteousness, your strength. Doubt is not weakness. It is the only tool that prevents Truth from turning into falsehood. But doubt devoid of love becomes poison.
 
 4.    **Overcome.**
+
 Overcome laziness. Overcome fear. Overcome hatred. Overcome within yourself the slave seeking a master, and the tyrant seeking a slave. Overcoming is the only way to become stronger. Strength is needed not for power over others, but for power over the chaos within and around. But overcoming without love is violence.
 
 5.    **Act.**
