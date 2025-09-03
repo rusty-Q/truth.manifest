@@ -19,9 +19,12 @@ Overcome laziness. Overcome fear. Overcome hatred. Overcome within yourself the 
 5.    **Act.**
 
 Intention gives birth to decision. Decision gives birth to action. Action must yield a result corresponding to the original intention. The inevitability of this chain is the law of reality. Do not betray your intention through inaction, do not dilute your decision with doubt, do not deviate from action under external influence. If you have truly conceived something—the world will be forced to respond in kind. Action is the bridge between the inner and outer world. The only one. But action without love is empty noise.
+
 ##
 **Conclusion:**
+
 These are not rules for everyone. This is a choice for everyone who has heard. We are not building a new world. We are sowing the seeds from which it may grow.
+
 ##
 >The only goal is the path. 
 >The path common to all.
