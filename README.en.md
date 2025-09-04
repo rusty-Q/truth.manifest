@@ -32,6 +32,7 @@ These are not rules for all. This is a choice for everyone who hears. We are not
 
 ##
 >*The only goal is the Path.*
+>
 >*The Path is common to all.*
 ##
 [Русский](README.md) | [中文](README.zh.md)
